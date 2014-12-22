@@ -35,10 +35,34 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-An astrologicall addition, or supplement to be annexed to the late discourse vpon the great coniunct
+
+1. Angliae diurnum, nocturnumue Votum▪
+Ioannis Harueij Hexaſticho breuiter
+expreſſum.
+
+1. Apoſtrophe ad operis Patronum:
+altero Auctoris Hexaſticho ſuccinct•
+comprehenſa.
+
+1. To the Right worſhipful Maſter
+Iuſtice Meade, returning from his
+Honorable circuite, IOHN HARVEY
+wiſheth long health, and continuall increaſe
+of all prosperitie.
+
+1. AN ASTROLOGICAL ADdition,
+or ſupplement, to be annexed to
+the late Diſcourſe, vpon the great Coniunction,
+of Saturne and Iupiter: Newlie
+ſent by Iohn Haruey, to his worſhipfull,
+and beloued Brother, M. Gabriell
+Haruey.
+
 #####Body#####
+
+1. An Astrologicall Supplement.
 ☌ ♄ ♃Anno. 1583. Menſe. April. Die. 28. Hora. 16.Maeſtlinus. Pol. 51.Suum cuique integrum eſto iudic
-1. A note of ſuch Aſtrologicall
+    _ A note of ſuch Aſtrologicall
 partes, touching dearth & plenty,
 as are to be annexed to the preſent figure.
 A peece of Thales Mileſius his Oeconomicall
@@ -47,32 +71,32 @@ Aſtrologie: and of verie great vſe for
 deale in any of the particulars
 folowing.
 
-1. A Note or Table of the ſeuerall Fortitudes
+    _ A Note or Table of the ſeuerall Fortitudes
 and Debilities of the Planets, according
 to their ſituation and placing
 in the former Figure.
 
-1. The order of the Planets, as they are either
+    _ The order of the Planets, as they are either
 ſtrong, or weake; more familiarly expreſſed
 for the common capacitie of the
 vnſkilfuller ſorte.
 Now to deſcend more particularly vnto the
 preſent matter; The Dignities & Debilities
 of Saturne & Iu
-1. The Caeleſtiall ſcheme, calculated for
+    _ The Caeleſtiall ſcheme, calculated for
 the future oppoſition of Saturne and
 Iupiter.
 
 So that the perillous effects of this grand
 Coniunction ſhall continue and ſtill increaſe
 on, vntil
-1. Inclitae vrbis Florentiae natalis,
+    _ Inclitae vrbis Florentiae natalis,
 Horoſcopicè delineatus.
 
 Hither I ſuppoſe may thoſe Regions and Cities
 be alſo added which are ſubiect to the dominion of
 Sa
-1. The Concluſion.
+    _ The Concluſion.
 
 **Types of content**
 
